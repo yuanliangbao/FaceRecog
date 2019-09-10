@@ -5,4 +5,4 @@
 
 TG频道群组：https://t.me/DeepHackerClub
 
-联系邮箱：lvmaozi乖protonmail.com
+联系邮箱：lvmaozi[乖]protonmail.com
