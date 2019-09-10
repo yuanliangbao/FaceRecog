@@ -4,3 +4,5 @@
 永久访问域名：www.原谅宝.com  & www.yuanliangbao.com
 
 TG频道群组：https://t.me/DeepHackerClub
+
+联系邮箱：lvmaozi乖protonmail.com
